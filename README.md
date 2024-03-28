@@ -294,6 +294,7 @@
 * [OnlyTik](https://onlytik.com/) - NSFW TikTok
 * [Xfollow](https://www.xfollow.com/) - NSFW TikTok
 * [Tik.pm](https://tik.pm/) - NSFW TikTok
+* [Tiktok18+](https://tiktok18xx.com/) - NSFW TikTok
 * [r/tiktokporn](https://www.reddit.com/r/tiktokporn/) - NSFW TikTok Subreddit
 * [r/Tiktokthots](https://www.reddit.com/r/tiktokthots/) - NSFW TikTok Subreddit
 
